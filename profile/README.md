@@ -1,0 +1,1 @@
+![BigCommerce-logo-dark](https://user-images.githubusercontent.com/106064302/218707927-14a3c015-06d6-4b09-b8a8-0f402bcf65d5.png)
